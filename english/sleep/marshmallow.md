@@ -11,6 +11,12 @@ And suddenly your wish come true, the chocolate furniture appears,
 and you start thinking is it really possible,
 whatever i think will come true.
 
+You consider ensuring that every child in the world has the economic
+conditions for a full education, including music. You consider wishing
+for a breakthrough on fusion research, to allow a higher level of energy
+and economic development, and the potential for powered, rather than
+inertial, rocket trajectories to Mars and beyond. Or...
+
 You think if you should wish there was a way to melt these chocolates
 
 Do you:
